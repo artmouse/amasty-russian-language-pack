@@ -1,0 +1,1 @@
+# amasty-russian-language-pack
